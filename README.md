@@ -1,0 +1,1 @@
+# Kitabxanan-n-avtomatla-d-r-lm-sistemi
